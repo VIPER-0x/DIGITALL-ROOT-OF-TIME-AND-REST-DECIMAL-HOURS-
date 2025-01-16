@@ -1,0 +1,2 @@
+# DIGITALL-ROOT-OF-TIME-AND-REST-DECIMAL-HOURS-
+digital root of time 
